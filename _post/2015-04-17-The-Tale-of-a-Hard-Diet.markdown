@@ -16,14 +16,11 @@ Ok, some of you are going to say, "500 calories! that is starvation". It sorta i
 ## My progress
 
 	January to March 18
-
 		352 to 332 pounds
-
 	March 18 to April 16
-
 		332 to 302 pounds
-
 	Total lost up to date 50 pounds with 14 days to go in Phase 2
+    More below
 
 
 ##  The Diet - Reformulated for savings
