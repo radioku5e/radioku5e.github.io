@@ -34,31 +34,23 @@ Ok, some of you are going to say, "500 calories! that is starvation". It sorta i
     More below
 
 
-
-
-
 ##  The Diet - Reformulated for savings
-
-
 
 ### HCG Phase 1+2 42 days (alternatively if only need to lose 15 pounds this would only last 23 days)
 
-
-
 ### Stuff to buy:
 
-1 - HCG Drops $36.95 + Shipping at http://bit.ly/1Hcwltt
+    1 - HCG Drops $36.95 + Shipping at [http://bit.ly/1Hcwltt]
 
-1 - Liquid Vitamins (2 pack) $16.33 + Shipping at http://amzn.to/1cA9aOg    
+    1 - Liquid Vitamins (2 pack) $16.33 + Shipping at [http://amzn.to/1cA9aOg]    
 
-1 - Liquid vitamin B12 $17.13 + Shipping at http://amzn.to/1b1zLCY
+    1 - Liquid vitamin B12 $17.13 + Shipping at [http://amzn.to/1b1zLCY]
 
-1 - Metamucil (generic) $8.88 at Walmart
+    1 - Metamucil (generic) $8.88 at Walmart
 
-2 - Glocosamine and Condroitin (Optional, but helpful if you suffer from
+    2 - Glocosamine and Condroitin (Optional, but helpful if you suffer from
 
-joint pain) $11.49 + Shipping at http://amzn.to/1cA9mNA
-
+    joint pain) $11.49 + Shipping at [http://amzn.to/1cA9mNA]
 
 
 ### Day 1 - 2
@@ -67,286 +59,201 @@ Take 10 drops (.5 ml) of the drops under your tongue 3 times per day.
 
 Drink between 1/2 gallon to 1 Gallon of water daily.
 
-
-
 Weigh yourself daily. 
 
-
-
 Eat and eat and eat. You want to eat everything you think you will miss in the next 40 days.
-
 
 
 ### Day 3 - 40
 
 Take 10 drops (.5 ml) of the drops under your tongue 3 times per day.
 
-
-
 Drink between 1/2 gallon to 1 Gallon of water daily.
 
-
-
 If you gain a pound, the next day you fast and eat 6 apples (only apples and water) spread out during the day.
-
-
 
 No exercise or massages
 
 
-
 **Breakfast**
 
+    Coffee, (with stevia and one tbs of milk - if desired)
 
+    Smoothie
 
-Coffee, (with stevia and one tbs of milk - if desired)
+        8 Frozen Strawberries
 
+        1 dose of Liquid Vitamin
 
+        1 dose of liquid B12
 
-Smoothie
+        1 dose of Metamucil
 
-8 Frozen Strawberries
+        1 dose of Glucosamine (optional)
 
-1 dose of Liquid Vitamin
+        Water to tase
 
-1 dose of liquid B12
-
-1 dose of Metamucil
-
-1 dose of Glucosamine (optional)
-
-Water to tase
-
-(Mix it all in a blender to make a smoothie)
-
+        (Mix it all in a blender to make a smoothie)
 
 
 **Snack**
 
+    1  Wasa cracker or Melba Toast or Bread Stick
 
-
-1  Wasa cracker or Melba Toast or Bread Stick
-
-(Sometimes I spray with PAM and dust with Garlic Salt)
-
+    (Sometimes I spray with PAM and dust with Garlic Salt)
 
 
 **Lunch**
 
+    4 oz of a Protein
 
-
-4 oz of a Protein
-
-4 oz of a Vegetable
-
+    4 oz of a Vegetable
 
 
 **Snack**
 
+    1  Wasa cracker or Melba Toast or Bread Stick
 
-
-1  Wasa cracker or Melba Toast or Bread Stick
-
-(Sometimes I spray with PAM and dust with Garlic Salt)
-
+    (Sometimes I spray with PAM and dust with Garlic Salt)
 
 
 **Dinner**
 
+    4 oz of a Protein
 
-
-4 oz of a Protein
-
-4 oz of a Vegetable
-
+    4 oz of a Vegetable
 
 
 **Snack** 
 
-
-
-1 Medium Apple
-
-
+    1 Medium Apple
 
 **If you run out of energy during the day, you could get a water enhancer that contains B12 to give you a boost.**
-
-
 
 This is around 500 calories per day. Yes, it sounds hard, but after 3 days you will not even notice. And, after 20 days I found that my stomach got smaller. In the morning after my smoothie I could not fit any more food. 
 
 
-
 ## Day 41-42
-
-
 
 Stay on the diet, but do not take the drops.
 
 
-
 ## Day 43-80 Phase 3 (maintenance)
-
-
 
 Do not do 500 calorie and drop diet more than 42 days in a row.
 
-
-
 Weigh yourself daily. If you gain 2 pounds, the next day you fast and eat 3 juicy prime rib steaks (only steak and water) spread out during the day.
-
-
 
 In phase 3 you start to add good fats, dairy, and good carbs. (1500 Calories)
 
 You should start to exercise lightly
 
 
-
-**Basically you follow the nutritional pyramid•Bread/Grain**
-
+**Basically you follow the nutritional pyramid**
 
 
-(In a small amount) a hand full of crackers or a little more melba toast
+**Bread/Grain**
 
-then in phase 2 (Continue to avoid starches such as potato, white rice,
+    (In a small amount) a hand full of crackers or a little more melba toast
 
-beans etc.)
+    then in phase 2 (Continue to avoid starches such as potato, white rice,
 
+    beans etc.)
 
 
 **Fruit**
 
-
-
-(From original list of phase 2)
-
+    (From original list of phase 2)
 
 
 **Dairy**
 
-
-
-1 cup per day
-
+    1 cup per day
 
 
 **Vegetable**
 
+    (I have found in my experience that there are a few vegetables that the
 
+    original diet does not mention or says are a risk such as sweet peas of
 
-(I have found in my experience that there are a few vegetables that the
+    carrots. In my experience on this diet I have found no difference in result
 
-original diet does not mention or says are a risk such as sweet peas of
+    or sustaining weight in this phase. Everyone is different experiment at
 
-carrots. In my experience on this diet I have found no difference in result
-
-or sustaining weight in this phase. Everyone is different experiment at
-
-your own risk.)
-
+    your own risk.)
 
 
 **Meat/ Protein**
 
-
-
-4 oz - 6 oz per meal
-
+    4 oz - 6 oz per meal
 
 
 **Guilty Pleasure**
 
+    (When it comes to this diet most people like to stick to the strict lines
 
+    of the original protocol. I have found little tricks to help along the way
 
-(When it comes to this diet most people like to stick to the strict lines
+    such as sugar free candies and ice creams. Incorporating these items in
 
-of the original protocol. I have found little tricks to help along the way
+    your phase 3 is again, only my experiences and use caution because what
 
-such as sugar free candies and ice creams. Incorporating these items in
-
-your phase 3 is again, only my experiences and use caution because what
-
-works for some may not work for others.)
-
-
-
+    works for some may not work for others.)
 
 
 **Sample Phase 3 Menu**
 
 
-
 **Breakfast**
 
+    1/2 Cup of milk (if desired)
 
+    Coffee, (with stevia and one tbs of milk - if desired)
 
-1/2 Cup of milk (if desired)
+    Smoothie with vitamins that you are so used too
 
-Coffee, (with stevia and one tbs of milk - if desired)
-
-Smoothie with vitamins that you are so used too
-
-2 Large Scrambled Eggs
-
+    2 Large Scrambled Eggs
 
 
 **Snack**
 
+    1 serving of Fruit Yogurt (probiotic is better)
 
-
-1 serving of Fruit Yogurt (probiotic is better)
-
-1  Wasa cracker or Melba Toast or Bread Stick
-
+    1  Wasa cracker or Melba Toast or Bread Stick
 
 
 **Lunch**
 
+    4 oz of a Protein
 
+    4 oz of a Vegetable
 
-4 oz of a Protein
-
-4 oz of a Vegetable
-
-2 oz of good grain (Wheat bread, Brown Rice…)
-
+    2 oz of good grain (Wheat bread, Brown Rice…)
 
 
 **Snack**
 
+    4 oz Vegetable
 
-
-4 oz Vegetable
-
-1 Medium Apple
-
+    1 Medium Apple
 
 
 **Dinner**
 
+    4 oz of a Protein
 
+    4 oz of a Vegetable
 
-4 oz of a Protein
-
-4 oz of a Vegetable
-
-2 oz of good grain (Wheat bread, Brown Rice…)
-
+    2 oz of good grain (Wheat bread, Brown Rice…)
 
 
 **Desert** (if it fits) *Do not eat after 8PM
 
-
-
-1 serving of no sugar added ice cream
-
-
-
+    1 serving of no sugar added ice cream
 
 
 **If you run out of energy during the day, you could get a water enhancer that contains B12 to give you a boost.**
-
 
 
 _After you are done with Phase 3 you can do another Phase 1+2 if you need to lose more weight or go to Phase 4 which is long term weight maintenance._
@@ -355,8 +262,6 @@ _After you are done with Phase 3 you can do another Phase 1+2 if you need to los
 
 ## Phase 4
 
-
-
 Start to re-introduce sugars and starches back into your diet.
 
 Adjust your caloric intake to the level that is needed to maintain your desired weight. I use a free app called loseit to track my weight and caloric intake. 
@@ -364,9 +269,7 @@ Adjust your caloric intake to the level that is needed to maintain your desired 
 Weigh yourself daily and track it. If you see a gain of 2 pounds in one day, then do a steak day. 
 
 
-
 ## Food list
-
 
 
 **Phase 1 Foods**
@@ -396,7 +299,6 @@ VEGETABLES
 - Asparagus
 
 
-
 PROTEINS
 
 Your meats/poultry cannot be cooked on the bone. All meats should be trimmed of all fat (and skin)
@@ -414,7 +316,6 @@ Your meats/poultry cannot be cooked on the bone. All meats should be trimmed of 
 - Chicken
 
 
-
 FRUIT
 
 - Apples
@@ -422,7 +323,6 @@ FRUIT
 - Blue Berries, Blackberries or Strawberries
 
 - Lemons
-
 
 
 DRINK & OTHERS
@@ -446,11 +346,9 @@ DRINK & OTHERS
 Any natural herb or spice, salt and pepper, garlic
 
 
-
 **Phase 3 Foods**
 
 Add dairy, whole grains, and wheat bread to phase 2 foods
-
 
 
 **Phase 4 Foods**
@@ -458,20 +356,12 @@ Add dairy, whole grains, and wheat bread to phase 2 foods
 Start to re-introduce sugars and starches back into your diet. As normal with limited caloric intake to the daily need of your weight and body type.
 
 
-
-
-
 ## Results so far:
-
-
 
 My blood pressure hovers around 130/85, and blood sugar is rarely over 90. And I have lost 50 pounds, 20 on my own and 30 on the HCG drops. I no longer need the Metformin, and I am about to stop the Lisinopril and HCTZ
 
 
-
-A great place to learn more about this diet at http://bit.ly/1NSJxsJ
-
-
+A great place to learn more about this diet at [http://bit.ly/1NSJxsJ]
 
 Good luck and good health.
 
