@@ -31,7 +31,7 @@ Ok, some of you are going to say, "500 calories! that is starvation". It sorta i
 
     Total lost up to date 50 pounds with 14 days to go in Phase 2
 
-    *More below*
+    **More below**
 
 
 ##  The Diet - Reformulated for savings
@@ -42,15 +42,13 @@ Ok, some of you are going to say, "500 calories! that is starvation". It sorta i
 
     1 - HCG Drops $36.95 + Shipping at [http://bit.ly/1Hcwltt](http://bit.ly/1Hcwltt)
 
-    1 - Liquid Vitamins (2 pack) $16.33 + Shipping at [http://amzn.to/1cA9aOg](ttp://amzn.to/1cA9aOg)
+    1 - Liquid Vitamins (2 pack) $16.33 + Shipping at [http://amzn.to/1cA9aOg](http://amzn.to/1cA9aOg)
 
     1 - Liquid vitamin B12 $17.13 + Shipping at [http://amzn.to/1b1zLCY](http://amzn.to/1b1zLCY)
 
     1 - Metamucil (generic) $8.88 at Walmart
 
-    2 - Glocosamine and Condroitin (Optional, but helpful if you suffer from
-
-          joint pain) $11.49 + Shipping at [http://amzn.to/1cA9mNA](http://amzn.to/1cA9mNA)
+    2 - Glocosamine and Condroitin (Optional, but helpful if you suffer from joint pain) $11.49 + Shipping at [http://amzn.to/1cA9mNA](http://amzn.to/1cA9mNA)
 
 
 ### Day 1 - 2
