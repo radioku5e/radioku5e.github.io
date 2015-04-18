@@ -23,15 +23,15 @@ Ok, some of you are going to say, "500 calories! that is starvation". It sorta i
 
     January to March 18
 
-    352 to 332 pounds
+        352 to 332 pounds
 
     March 18 to April 16
 
-    332 to 302 pounds
+        332 to 302 pounds
 
     Total lost up to date 50 pounds with 14 days to go in Phase 2
 
-    More below
+    *More below*
 
 
 ##  The Diet - Reformulated for savings
@@ -40,17 +40,17 @@ Ok, some of you are going to say, "500 calories! that is starvation". It sorta i
 
 ### Stuff to buy:
 
-    1 - HCG Drops $36.95 + Shipping at [http://bit.ly/1Hcwltt]
+    1 - HCG Drops $36.95 + Shipping at [http://bit.ly/1Hcwltt](http://bit.ly/1Hcwltt)
 
-    1 - Liquid Vitamins (2 pack) $16.33 + Shipping at [http://amzn.to/1cA9aOg]    
+    1 - Liquid Vitamins (2 pack) $16.33 + Shipping at [http://amzn.to/1cA9aOg](ttp://amzn.to/1cA9aOg)
 
-    1 - Liquid vitamin B12 $17.13 + Shipping at [http://amzn.to/1b1zLCY]
+    1 - Liquid vitamin B12 $17.13 + Shipping at [http://amzn.to/1b1zLCY](http://amzn.to/1b1zLCY)
 
     1 - Metamucil (generic) $8.88 at Walmart
 
     2 - Glocosamine and Condroitin (Optional, but helpful if you suffer from
 
-    joint pain) $11.49 + Shipping at [http://amzn.to/1cA9mNA]
+          joint pain) $11.49 + Shipping at [http://amzn.to/1cA9mNA](http://amzn.to/1cA9mNA)
 
 
 ### Day 1 - 2
@@ -361,9 +361,8 @@ Start to re-introduce sugars and starches back into your diet. As normal with li
 My blood pressure hovers around 130/85, and blood sugar is rarely over 90. And I have lost 50 pounds, 20 on my own and 30 on the HCG drops. I no longer need the Metformin, and I am about to stop the Lisinopril and HCTZ
 
 
-A great place to learn more about this diet at [http://bit.ly/1NSJxsJ]
+A great place to learn more about this diet at [http://bit.ly/1NSJxsJ](http://bit.ly/1NSJxsJ)
 
 Good luck and good health.
-
 
 
