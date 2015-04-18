@@ -7,45 +7,31 @@ categories: diet
 
 When I started 2015, my wife was nagging me. Not much different than lots of your lives if you are married. However, this time **she was right**. 
 
-
-
 I am glad I listend to her. The information I gleened from the visit might have saved my life in the long run. My blood pressure was 203/125 and my HgA1C was 6.6. 
-
-
 
 The Blood sugar was not that bad, but borderline for diabetes (6.5 is the cutoff). But worse than all these, and probably the cause of them was my weight; I weighed in at a the highest I have ever weighed, 352 pounds. 
 
 Needless to say the doc told me I had to get on meds, and get on a diet. He perscribed Lisinopril for blood pressure, Hydroclorothiazide for water I was accumulating in my legs, and Metformin as a precaustion to keep my blood sugar down. Luckily, I only had to pay for the HCTZ, Publix is so gracius to provide the other two for free. 
 
-
-
 I had to make some lifestyle changes, quick. So with this in mind I spooled up my LoseIt app and started to diet. At first it went well, I lost almost 20 pounds by mid March. Then, we had to have our horse's teeth floated (for my non-horse friends, this involves dremeling or sanding down your horses teeth so they can eat comfortably - a necessary evil). So we called our equine dentist, probably the best in the business, Barry Rosenthal. When he showed up at the pasture he was a new man, he must have lost 100 pounds or more. 
-
-
 
 I asked him what he had done. He told me he was on a diet called Omnitrition, and that he and his wife were representatives. Being a veteran of the MLM world (Amway Emerald) I was leary, but I met with them. My wife and I spent around $250 in supplements for the diet for half of phase 2. I was of the opinion that that amount of money was worth it if I could lose as much as Barry did. So my wife and I embarked on the 500 calorie voyage. 
 
-
-
 Ok, some of you are going to say, "500 calories! that is starvation". It sorta is, but no worse than the the 400 calories most Gastric Bypass Patients suffer through at the begining of their voyage. However, my voyage avoids the surgery, recovery, and $10,000+. In any case this is the story of my voyage. (and how you can do it for much less $$$)
-
-
 
 ## My progress
 
+    January to March 18
 
+    352 to 332 pounds
 
-January to March 18
+    March 18 to April 16
 
-352 to 332 pounds
+    332 to 302 pounds
 
-March 18 to April 16
+    Total lost up to date 50 pounds with 14 days to go in Phase 2
 
-332 to 302 pounds
-
-Total lost up to date 50 pounds with 14 days to go in Phase 2
-
-More below
+    More below
 
 
 
