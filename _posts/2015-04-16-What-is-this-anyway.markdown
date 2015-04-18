@@ -55,7 +55,7 @@ More below
 
 
 
-## HCG Phase 1+2 42 days (alternatively if only need to lose 15 pounds this would only last 23 days)
+### HCG Phase 1+2 42 days (alternatively if only need to lose 15 pounds this would only last 23 days)
 
 
 
