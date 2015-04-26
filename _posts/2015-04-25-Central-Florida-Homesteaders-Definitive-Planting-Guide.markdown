@@ -13,6 +13,8 @@ We also want to start the HS lifestyle now. Thanks to Terry and his "war call" o
 
 With the above in mind, I went to the UF extension website and found they had monthly planting guides for Florida farmers. They had them for each section of Florida, South, Central, and North. However, each was a sepearate PDF file. Additionally each PDF linked to other PDFs. In the guise of simplicity, I downloaded as many of the linked PDFs that were available and I compiled them into one PDF. This work took me 6 or so hours and is 506 pages long. [If you are interested in the guide download it here.](http://www.ku5e.com/downloads/CFlPlanting.pdf)
 
+I am still working on linking the pages to the text on the calendar pages. If you want to use it as is, open the bookmarks pane and use the bookmarks I created to go to the specific areas of interest.
+
 ## Upcoming plans for my home microfarm
 
 1. We are going to cross fence the yard.
