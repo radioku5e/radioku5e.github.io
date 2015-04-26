@@ -1,7 +1,7 @@
 ---
 title: The Central Florida Homesteaders Definative Planting Guide
 date: 2015-04-25 19:55:16
-categories: hoestaeding farming
+categories: homestaeding farming
 ---
 #  The Central Florida Homesteaders Definative Planting Guide (Thanks must go out to UF)
 
@@ -11,7 +11,7 @@ Michelle and I are going to take the BeeKeeping classes at the extension center 
 
 We also want to start the HS lifestyle now. Thanks to Terry and his "war call" of do it now, we are going to cut the few strings that held us attached to the grocery store.
 
-With the above in mind, I went to the UF extension website and found they had monthly planting guides for Florida farmers. They had them for each section of Florida, South, Central, and North. However, each was a sepearate PDF file. Additionally each PDF linked to other PDFs. In the guise of simplicity, I downloaded as many of the linked PDFs that were available and I compiled them into one PDF. This work took me 6 or so hours and is 506 pages long. [If you are interested in the guide download it here.](../downloads/CFlPlanting.pdf)
+With the above in mind, I went to the UF extension website and found they had monthly planting guides for Florida farmers. They had them for each section of Florida, South, Central, and North. However, each was a sepearate PDF file. Additionally each PDF linked to other PDFs. In the guise of simplicity, I downloaded as many of the linked PDFs that were available and I compiled them into one PDF. This work took me 6 or so hours and is 506 pages long. [If you are interested in the guide download it here.](http://ku5e.com/downloads/CFlPlanting.pdf)
 
 ## Upcoming plans for my home microfarm
 
