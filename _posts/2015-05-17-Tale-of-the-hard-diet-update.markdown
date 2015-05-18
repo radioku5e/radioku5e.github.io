@@ -5,7 +5,7 @@ categories: diet
 ---
 ##  The Hard Diet
 
-May 17th, 2015 Update - I have been on maintenence (phase 3) for 3 weeks and I have stayed within 2 pounds of my last Phase 2 weight. Hooray! 3 more weeks to go before I hit the hard part again. Honestly, I have to say I miss the hard part (Phase 2). It was easier to follow than the guessing game of phase 3. I have been asked by several friends to share the diet. Below you will find the diet as I followed it. Additionally if you want the original manuscript from Dr. Simeon you can download it [here](https://www.ku5e.com/downloads/Dr-Simeons-Manuscript.pdf)
+May 17th, 2015 Update - I have been on maintenence (phase 3) for 3 weeks and I have stayed within 2 pounds of my last Phase 2 weight. Hooray! 3 more weeks to go before I hit the hard part again. Honestly, I have to say I miss the hard part (Phase 2). It was easier to follow than the guessing game of phase 3. I have been asked by several friends to share the diet. Below you will find the diet as I followed it. Additionally if you want the original manuscript from Dr. Simeon you can download it [here](http://www.ku5e.com/downloads/Dr-Simeons-Manuscript.pdf)
 
 When I started 2015, my wife was nagging me. Not much different than lots of your lives if you are married. However, this time **she was right**. 
 
