@@ -52,6 +52,8 @@ Ok, some of you are going to say, "500 calories! that is starvation". It sorta i
 
 2 - Glocosamine and Condroitin (Optional, but helpful if you suffer from joint pain) $11.49 + Shipping at [http://amzn.to/1cA9mNA](http://amzn.to/1cA9mNA)
 
+1 - Lose it app for your browser, phone, or tablet. (Lose It! is also available on your iPhone and iPod, on Android, on the Kindle Fire, and on the Barnes & Noble Nook.) [Browser](http://loseit.com), [Android](https://play.google.com/store/apps/details?id=com.fitnow.loseit&hl=en), or [Apple IOS](https://itunes.apple.com/us/app/lose-it!-weight-loss-program/id297368629?mt=8#). After you download it and set it up, please add me, ku5e@ku5e.com to your friends list [Add friends](http://www.loseit.com/index.jsp#Community:Add%20Friend!si=1)
+
 
 ### Day 1 - 2
 
