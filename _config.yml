@@ -7,10 +7,10 @@ twitter: http://www.twitter.com/ku5e
 facebook: http://www.facebook.com/radioku5e
 linkedin: http://www.linkedin.com/pub/mario-martinez-jr-mba
 email: ku5e[at]ku5e.com
-location: 28.4158° N  81.2989° W
+location: 28.4158° N  81.2988° W
 disqus: diqus-username
 
-##Make sure to edit the above fields, especially for disqus.
+##Make sure to edit the abve fields, especially for disqus.
   
 highlighter: pygments
 markdown: redcarpet
