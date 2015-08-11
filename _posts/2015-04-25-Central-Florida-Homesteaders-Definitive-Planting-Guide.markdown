@@ -15,12 +15,15 @@ With the above in mind, I went to the UF extension website and found they had mo
 
 I am still working on linking the pages to the text on the calendar pages. If you want to use it as is, open the bookmarks pane and use the bookmarks I created to go to the specific areas of interest.
 
+New document available 8/11/2015:
+This PDF has all the UF infographic files for edibles and flowering trees.  [If you are interested in the guide download it here.](http://www.ku5e.com/downloads/UF_Planting_Infographix.pdf)
+
 ## Upcoming plans for my home microfarm
 
-1. We are going to cross fence the yard.
-2. We are going to acquire 2 more sheep, for a totla of 5 (2 males ad 3 females)
-3. We are going to set up the chicken pens and house between 25 and 40
-4. We are going to create raised planters (total of 160 feet by 3 feet)
-5. We are going to continue the Rabbit farming
-6. We are going to acquire 2 Goats for milk
+1. We are going to cross fence the yard. (Might not need to do this as we are about to close on 10 acres between Saint Cloud and Melbourne)
+2. We are going to acquire 2 more sheep, for a total of 5 (2 males ad 3 females) √
+3. We are going to set up the chicken pens and house between 25 and 40 (Maybe at the new property) 
+4. We are going to create raised planters (total of 160 feet by 3 feet) Opted to use dutch buckets instead. 
+5. We are going to continue the Rabbit farming √
+6. We are going to acquire 2 Goats for milk √
 
